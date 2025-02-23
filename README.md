@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @NitinRajvanshi
-- 👀 I’m interested in Working on Projects and Coding specialization 
-- 🌱 I’m currently learning Computer Research and development 
 - 💞️ Always 👍 for collaboration according to intrest 
 - 📫 Reach me through my Gmail: nitinkumarrajvanshi6@gmail.com
 
